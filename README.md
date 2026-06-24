@@ -5,6 +5,6 @@
 <sub>6teen, transgender, mexican-american<br>
 <sub>
 <br>
-[ata](https://fyrestoned.atabook.org)⠀⠀⠀[rentry](https://rentry.co/fyrestoned)<br>
+[ata](https://fyrestoned.atabook.org)⠀⠀⠀[rentry](https://rentry.org/fyrestoned)<br>
 <br>
 ![](https://komarev.com/ghpvc/?username=fyrestoned&color=84577f&style=flat&label=Views)
